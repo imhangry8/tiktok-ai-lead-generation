@@ -1,4 +1,4 @@
-# ORUIKE｜CNC 设备 TikTok B2B 获客项目记录
+# CNC 设备 TikTok B2B 获客项目记录
 
 ## 项目背景
 
